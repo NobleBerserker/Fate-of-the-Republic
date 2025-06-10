@@ -8,11 +8,11 @@ To cover more ground, the [[Group|group]] decided to split up. [[Aurelia Blackbr
 
 At [[Weaver’s Rest]], they uncovered rumors about [[Ralindra Veyn|Ralindra]] and the [[Ashen Fangs|Fangs]]. The gang had once stolen a single letter from a [[Luke Varnholt|merchant]], forcing him to flee [[Bannershire]], and had also looted silk from [[Henry Dauvrey|another merchant]]'s warehouse—only to distribute it among local tailors. Regarding [[Ralindra Veyn|Ralindra]] herself, they learned of a recent violent outburst against a [[Cult of Many|group of people]] who had been terrorizing some [[Street Rats|orphans]]. As for her [[Granny Ralindra|grandmother]], she seemed to be widely admired.
 
-At the funeral, [[Liam Jasper Locke|Liam]] and [[Rowan|Rowan]] spotted [[Ralindra Veyn|Ralindra]] surrounded by the [[Ashen Fangs]]. Among those who spoke with her were [['One-Eyed' Jordan Trollsbane|One-Eyed]] and [[Viktor 'Mask' Roscoe|Viktor Roscoe]], the [[Councilor of Foreign Affairs]]. Intrigued, they listened closely and discovered that the [[Councilor of Foreign Affairs|Councilor]] had known her grandmother.
+At the funeral, [[Liam Jasper Locke|Liam]] and [[Rowan|Rowan]] spotted [[Ralindra Veyn|Ralindra]] surrounded by the [[Ashen Fangs]]. Among those who spoke with her were [['One-Eyed' Jordan Trollsbane|One-Eyed]] and [[Viktor Roscoe]], the [[Councilor of Foreign Affairs]]. Intrigued, they listened closely and discovered that the [[Councilor of Foreign Affairs|Councilor]] had known her grandmother.
 
 After he departed, they approached [[Ralindra Veyn|Ralindra]] to offer their condolences. Through their conversation, they learned about [[The Iron Pact]], an adventuring party that played a crucial role in the [[The Peasant Revolution of Bridgehold]] and the [[Troll Wars]]. The group disbanded after the [[Troll Wars]] following the early death of [[Gareth Holloway]].
 
-Based on [[Viktor 'Mask' Roscoe|Viktor Roscoe]]’s words to [[Ralindra Veyn|Ralindra]], it seemed her grandmother had been a good person—despite the [[Nyxis|darkness]] that had followed her.
+Based on [[Viktor Roscoe]]’s words to [[Ralindra Veyn|Ralindra]], it seemed her grandmother had been a good person—despite the [[Nyxis|darkness]] that had followed her.
 
 Previous: [[Episode 2]]
 Next: [[Episode 4]]

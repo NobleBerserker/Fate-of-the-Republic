@@ -26,6 +26,6 @@ Just as their conversation was unfolding, **[[Bramble Bast]]**, **[[Aurelia Blac
 
 With the tension eased, **[[Eldrin Duskbane]]** approached the owner, determined to get answers. He began questioning the tavern keeper about the mysterious stranger [[Krevik Dallor]] had met right before the assassination attempt.
 
-**[[Liam Jasper Locke]]** joined **[[Eldrin Duskbane]]** and **[[Bramble Bast]]** at the bar, and together they learned that **[[Krevik Dallor]]** had been talking to a masked man known on the streets as **[[Viktor 'Mask' Roscoe]]**. Before they could fully process this, the door to **[[Monocular]]** swung open. In walked five members of the **[[Ashen Fangs]]**, one of them being none other than **[[Ralindra Veyn]]**. The owner greeted her warmly.
+**[[Liam Jasper Locke]]** joined **[[Eldrin Duskbane]]** and **[[Bramble Bast]]** at the bar, and together they learned that **[[Krevik Dallor]]** had been talking to a masked man known on the streets as **[['Mask']]**. Before they could fully process this, the door to **[[Monocular]]** swung open. In walked five members of the **[[Ashen Fangs]]**, one of them being none other than **[[Ralindra Veyn]]**. The owner greeted her warmly.
 
 **Next**: [[Episode 2]]
