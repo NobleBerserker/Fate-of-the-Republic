@@ -1,0 +1,1 @@
+A trader that was targeted by the [[Ashen Fangs]]. Apparently they only stole a letter from him.

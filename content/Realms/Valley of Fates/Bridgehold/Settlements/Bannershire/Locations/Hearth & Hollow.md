@@ -1,0 +1,1 @@
+A candle shop owned by [[Griselda Holt]].

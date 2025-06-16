@@ -1,0 +1,1 @@
+The capital of the [[Kingdom of Aeloris]]. Known for being an important port that links the Lordlands to the [[Sundering Sea]].

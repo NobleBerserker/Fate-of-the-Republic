@@ -2,7 +2,7 @@ After [['One-Eyed' Jordan Trollsbane]] hugged [[Ralindra Veyn]], he offered the 
 
 [[Liam Jasper Locke]] and [[Rowan]] soon approached the [[Ashen Fangs]]. [[Liam Jasper Locke]] and [[Ralindra Veyn]] exchanged greetings in street slang, revealing that [[Liam Jasper Locke]] runs with the [[Grey Hand]].
 
-Then, [[Eldrin Duskbane]] approached, trying to gather information about [['Mask']]. However, [[Ralindra Veyn]] dismissed him, claiming he acted too much like a guard—she wouldn't betray even her worst enemy to a lapdog of the law. Instead, she offered him a task: to check the alley where [[Yarek 'The Collector']] demands a 'toll' for passage. [[Eldrin Duskbane]], unwilling to work with criminals, refused. [[Rowan]] convinced him to at least walk to the bar.
+Then, [[Eldrin Duskbane]] approached, trying to gather information about [[Mask]]. However, [[Ralindra Veyn]] dismissed him, claiming he acted too much like a guard—she wouldn't betray even her worst enemy to a lapdog of the law. Instead, she offered him a task: to check the alley where [[Yarek 'The Collector']] demands a 'toll' for passage. [[Eldrin Duskbane]], unwilling to work with criminals, refused. [[Rowan]] convinced him to at least walk to the bar.
 
 As they left, [[Bramble Bast]] confused everyone with his antics, while [[Liam Jasper Locke]] tried reasoning with [[Ralindra Veyn]]. She pointed out that, since he wasn’t wearing a bandana, he could disguise himself and handle the job for her. She offered thirty gold coins, which [[Liam Jasper Locke]] considered fair—plus, it aligned with his own mission.
 

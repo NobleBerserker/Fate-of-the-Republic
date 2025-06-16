@@ -1,0 +1,1 @@
+An old tavern at the center of [[Bannershire]].

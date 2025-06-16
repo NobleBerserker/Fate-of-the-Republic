@@ -1,0 +1,2 @@
+![[Viktor Roscoe.png|300]]  
+An instructor of illusion in the [[Highspire College of the Arcane]] and the [[Councilor of Foreign Affairs]]. Friend of [[Granny Ralindra]] and ex-member of [[The Iron Pact]].

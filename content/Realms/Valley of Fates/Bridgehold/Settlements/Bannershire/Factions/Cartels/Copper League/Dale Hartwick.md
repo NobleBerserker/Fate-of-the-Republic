@@ -1,0 +1,1 @@
+A **hard-nosed mining foreman** who just wants the [[Old Mine|mine]] cleared. He warns that **delays cost money** and isn't keen on "book-readers" getting in the way.

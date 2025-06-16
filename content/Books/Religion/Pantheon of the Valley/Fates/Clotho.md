@@ -1,0 +1,1 @@
+The spinner – she spun the thread of life, determining when a person is born.

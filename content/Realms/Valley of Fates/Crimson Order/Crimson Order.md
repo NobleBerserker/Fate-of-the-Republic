@@ -1,0 +1,1 @@
+Not much is known about the Crimson Order. Other than the 'Deal'. The order offers their legendary mercenary knights in exchange for a first-born child or more.

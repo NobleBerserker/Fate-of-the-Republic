@@ -1,0 +1,1 @@
+The measurer – she measured the length of the thread, deciding how long a person would live.

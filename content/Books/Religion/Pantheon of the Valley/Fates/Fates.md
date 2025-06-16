@@ -1,0 +1,1 @@
+The three fates [[Clotho]], [[Lachesis]], [[Atropos]]. In the Valley's pantheon, the Fates' domain is the duration of a creature's life. 

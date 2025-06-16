@@ -1,0 +1,1 @@
+Denizen of [[Hearthside]] district in [[Bannershire]]. Loves gossip. Ginger haired

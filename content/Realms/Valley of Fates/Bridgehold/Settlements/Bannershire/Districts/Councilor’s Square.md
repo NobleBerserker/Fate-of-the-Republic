@@ -1,0 +1,1 @@
+**Taverns**: [[The Heart of Bannershire]]

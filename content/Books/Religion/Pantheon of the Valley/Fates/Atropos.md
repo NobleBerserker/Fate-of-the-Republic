@@ -1,0 +1,1 @@
+The cutter – she cut the thread of life, choosing when and how someone would die.

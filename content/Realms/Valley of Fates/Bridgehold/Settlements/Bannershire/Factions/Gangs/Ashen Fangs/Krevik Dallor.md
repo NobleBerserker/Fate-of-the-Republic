@@ -1,0 +1,2 @@
+Member of [[Ashen Fangs]]. 
+He was forced to attacked the [[First Steward]] in an attempt to assassinate him. The [[Group]] was suspicious that someone might have altered his thought patterns to force his attempt.

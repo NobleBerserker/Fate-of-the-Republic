@@ -1,0 +1,1 @@
+The Marshal of the [[Republic of Bridgehold]]. Lorian holds [[Prince Dorian Valiros]] the heir to the throne of [[Kingdom of Aeloris]] as a hostage student. This ensures peace between the [[Kingdom of Aeloris]] and the [[Republic of Bridgehold]].

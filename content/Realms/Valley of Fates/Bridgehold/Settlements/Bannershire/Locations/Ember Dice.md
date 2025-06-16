@@ -1,0 +1,1 @@
+A gambler's den at [[Hearthside]].

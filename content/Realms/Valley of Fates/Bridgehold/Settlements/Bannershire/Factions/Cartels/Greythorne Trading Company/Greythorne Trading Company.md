@@ -1,0 +1,1 @@
+A trading company that focuses on exporting goods from the [[Valley of Fates]] to the [[Sundering Sea]] through [[Driftport]]

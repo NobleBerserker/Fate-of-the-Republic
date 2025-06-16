@@ -1,0 +1,1 @@
+Home of the students of [[Highspire College of the Arcane]].

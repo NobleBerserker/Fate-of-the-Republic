@@ -18,7 +18,7 @@ As the characters gathered in **Councilor's Square**, a sudden assassination att
 
 [[Aurelia Blackbriar]] and [[Eldrin Duskbane]] caught the assassin, learning his name was **[[Krevik Dallor]]**. His dark orange bandana marked him as a member of the **[[Ashen Fangs]]**. After questioning him, they suspected that [[Krevik Dallor]] had been under a mind-affecting spell at the time of the attack. He mentioned a stranger he met at **[[Monocular]]**, a tavern in **[[Weaver’s Rest]]**, just before deciding to carry out the assassination.
 
-Deciding to investigate further, they took [[Krevik Dallor]] to **[[Gallows Lane]]**, where the **[[Guardhouse]]** was located. To their surprise, they found **[[Bramble Bast]]** in a cell, detained for reasons unknown. The guards called for a mage from **[[Highspire]]** to examine [[Krevik Dallor]] for any magical influence. After a thorough investigation, it was determined that no magic had left a trace on him. Despite this, the guards decided to take **[[Bramble Bast]]** along and set off for **[[Monocular]]** to continue their search.
+Deciding to investigate further, they took [[Krevik Dallor]] to **[[Gallows Lane]]**, where the guardhouse was located. To their surprise, they found **[[Bramble Bast]]** in a cell, detained for reasons unknown. The guards called for a mage from **[[Highspire]]** to examine [[Krevik Dallor]] for any magical influence. After a thorough investigation, it was determined that no magic had left a trace on him. Despite this, the guards decided to take **[[Bramble Bast]]** along and set off for **[[Monocular]]** to continue their search.
 
 For their own reasons, **[[Rowan]]** and **[[Liam Jasper Locke]]** also made their way to **[[Monocular]]**, where they ended up conversing. Liam, subtly on the lookout for anyone to target from the **[[Ashen Fangs]]**, chatted with Rowan, all while scanning the room.
 
@@ -26,6 +26,6 @@ Just as their conversation was unfolding, **[[Bramble Bast]]**, **[[Aurelia Blac
 
 With the tension eased, **[[Eldrin Duskbane]]** approached the owner, determined to get answers. He began questioning the tavern keeper about the mysterious stranger [[Krevik Dallor]] had met right before the assassination attempt.
 
-**[[Liam Jasper Locke]]** joined **[[Eldrin Duskbane]]** and **[[Bramble Bast]]** at the bar, and together they learned that **[[Krevik Dallor]]** had been talking to a masked man known on the streets as **[['Mask']]**. Before they could fully process this, the door to **[[Monocular]]** swung open. In walked five members of the **[[Ashen Fangs]]**, one of them being none other than **[[Ralindra Veyn]]**. The owner greeted her warmly.
+**[[Liam Jasper Locke]]** joined **[[Eldrin Duskbane]]** and **[[Bramble Bast]]** at the bar, and together they learned that **[[Krevik Dallor]]** had been talking to a masked man known on the streets as **[[Mask]]**. Before they could fully process this, the door to **[[Monocular]]** swung open. In walked five members of the **[[Ashen Fangs]]**, one of them being none other than **[[Ralindra Veyn]]**. The owner greeted her warmly.
 
 **Next**: [[Episode 2]]

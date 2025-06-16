@@ -1,0 +1,1 @@
+[[Eldrin Duskbane]]'s contact in the military. He gladly offered Eldrin a bunk when he first arrived in [[Bannershire]]

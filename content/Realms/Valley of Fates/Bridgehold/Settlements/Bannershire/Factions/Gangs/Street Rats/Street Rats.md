@@ -1,0 +1,1 @@
+There are rumors of a gang of children in [[Bannershire]]

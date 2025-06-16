@@ -1,0 +1,1 @@
+An elite member of the [[Crimson Order]].
