@@ -1,0 +1,3 @@
+![[Falkrath.png|300]]
+
+The self-proclaimed **one and only God of Death**, Jimmy insists that Veyrith is dead, leaving him as the sole deity presiding over death. The party freed him from his imprisonment deep beneath [[Castle Blackthorne]], a fortress they have since claimed as their own and intend to rename. Ever since his release, Jimmy has become a constant and unpredictable presence in their lives, alternating between offering invaluable assistance, tormenting them with his mischievous antics, and occasionally acting as their adversary. Whether friend or foe, the eccentric God of Death seems to take endless amusement in the party's adventures.

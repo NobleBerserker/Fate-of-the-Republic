@@ -1,0 +1,1 @@
+Joseph Torval has previously worked alongside the adventuring party while investigating [[Viktor Roscoe]] and his suspected involvement with the criminal organization known as the [[Grey Hand]]. Together, they sought to uncover evidence linking the influential revolutionary figure to the organization's illicit activities. 

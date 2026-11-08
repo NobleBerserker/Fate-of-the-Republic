@@ -2,7 +2,7 @@ The [[Group]] interrogated the captured [[Cult of Many|cultists]] and uncovered 
 
 The [[Group]] considered infiltrating the [[Cult of Many|cult]] in hopes of learning more about its inner workings. Meanwhile, [[Rowan]] kept his word to the raven by scaring off the hawk that had been terrorizing it.
 
-With that business concluded, the [[Group]] left [[Liam Jasper Locke|Liam]] behind in [[Brightmarch]], where he had personal matters to attend to, and set off for [[Willowshade]]. There, they hoped to uncover the truth behind the village’s missing children.
+With that business concluded, the [[Group]] left [[Liam Jasper Locke (Retired)|Liam]] behind in [[Brightmarch]], where he had personal matters to attend to, and set off for [[Willowshade]]. There, they hoped to uncover the truth behind the village’s missing children.
 
 Upon arrival, they discovered that another adventuring party had already arrived and was negotiating a reward for investigating the disappearances. The [[Group]] stepped in, prompting the mayor to suggest a cooperative effort and a shared prize. However, neither party showed interest in collaboration, and it was agreed they would compete for the reward instead.
 

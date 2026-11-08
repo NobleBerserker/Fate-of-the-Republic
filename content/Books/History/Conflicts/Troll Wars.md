@@ -1,0 +1,1 @@
+The Troll Wars took place in the days of the [[Duchy of Bridgehold]]. The [[The Iron Pact|Iron Pact]] helped the duchy through the wars. The company later helped overthrow the duke in the [[The Peasant Revolution of Bridgehold|Peasant Revolution]].

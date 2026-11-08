@@ -1,0 +1,5 @@
+About twenty years ago, Bridgehold was a duchy. As the duke raised taxes and called more people up to fight, farms lost workers and families went hungry. Wealthy merchants who enjoyed the duke’s favor prospered. House Blackbriar, then a major name in the arms trade, was one of the most prominent.
+
+In Bannershire, a grain warehouse burned. People stormed the tax office, and the duke’s troops publicly executed some of the ringleaders. The reprisals deepened the rebellion. Peasant militias, defecting soldiers, and hired fighters eventually laid siege to Bridgehold Keep. The [[The Iron Pact|Iron Pact]] helped overthrow the duke. He was captured and publicly executed after the keep fell.
+
+The [[Republic of Bridgehold]] grew out of that victory. Settlements sent representatives to a council, and land reforms gave peasants more control over their livelihoods. House Blackbriar lost much of its former power. The grain fire and the fall of the keep are still landmarks in the stories older residents tell.

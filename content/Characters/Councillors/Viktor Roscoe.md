@@ -1,2 +1,4 @@
 ![[Viktor Roscoe.png|300]]  
-An instructor of illusion in the [[Highspire College of the Arcane]] and the [[Councilor of Foreign Affairs]]. Friend of [[Granny Ralindra]] and ex-member of [[The Iron Pact]].
+An instructor of illusion at the [[Highspire College of the Arcane]] and the [[Councilor of Foreign Affairs]] of the [[Republic of Bridgehold]]. A close friend of [[Granny Ralindra]] and former member of [[The Iron Pact]], Viktor Roscoe played an important role in the revolution against Duke Alric Veymont.
+
+Despite his respected position, Viktor has recently come under suspicion for his alleged involvement with the criminal organization known as the [[Grey Hand]]. [[Joseph Torval]], with the assistance of the adventuring party, has been investigating these possible connections.
