@@ -19,4 +19,4 @@ When the revolutionaries finally reached Castle Blackthorne, they encountered th
 
 The Duke was subsequently taken into revolutionary custody and **publicly executed**, marking the definitive end of the old feudal regime.
 
-Children: [[Lorian Veymont]], [[Lord Tharlen Veymont]]
+Children: [[Lorian Veymont]], [[Tharlen Veymont]]

@@ -1,4 +1,4 @@
 ![[Velisse_Maravelle.png|300]]
-**Lady Velisse Maravelle** is a member of the [[Council of Banners]] and a close ally of [[House Blackbriar|House Blackbriar]]. A supporter of the old nobility, she secretly advocates for the restoration of Veymont rule in the [[Republic of Bridgehold]].
+**Velisse Maravelle** is a member of the [[Council of Banners]] and a close ally of [[House Blackbriar|House Blackbriar]]. A supporter of the old nobility, she secretly advocates for the restoration of Veymont rule in the [[Republic of Bridgehold]].
 
 Working alongside [[Tharlen Veymont]], the younger son of the late [[Duke Alric Veymont]], Velisse seeks to undermine the Republic's current political order and pave the way for the Veymont dynasty's return to power. Though she maintains a respectable public image, her political ambitions and loyalties lie firmly with those who wish to restore the old regime.
